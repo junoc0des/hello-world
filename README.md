@@ -5,4 +5,4 @@ my first repository
 
 
 My name is Janitzy, my friends call me Juno. I like technology and watching new tech unboxings on youtube. 
-I like to plaay video games and listen to music or podcasts on my free time
+I like to play video games and listen to music or podcasts on my free time
